@@ -56,4 +56,5 @@ Vigilance.AI/
 ---
 
 Built with purpose. In memory of those lost to preventable accidents.
+
 ⭕️Ụ⭕️
